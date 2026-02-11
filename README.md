@@ -1,4 +1,4 @@
-# Hi there, I'm Ehiosu Umar 👋
+# Hi there, I'm Abdulmalik Ehiosu Umar 👋
 
 ## About Me
 
